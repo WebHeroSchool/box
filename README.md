@@ -1,1 +1,1 @@
-New project
+New project will be successful
